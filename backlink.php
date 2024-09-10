@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://pendidikan-fisika.uinsgd.ac.id/burungbet/">https://pendidikan-fisika.uinsgd.ac.id/burungbet/</a>
 <a href="https://pmb.perbanas.id/nasgor/">https://pmb.perbanas.id/nasgor/</a>
 <a href="https://pmb.perbanas.id/138/">https://pmb.perbanas.id/138/</a>
 <a href="https://pusatprestasinasional.kemdikbud.go.id/nasgor/">https://pusatprestasinasional.kemdikbud.go.id/nasgor/</a>
