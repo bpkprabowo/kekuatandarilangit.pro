@@ -1,7 +1,9 @@
 <div style="display:none">
-<a href="https://komputasi.fmipa.unila.ac.id/burung/">https://komputasi.fmipa.unila.ac.id/burung/</a>
-<a href="https://sultan.bandungkab.go.id/nasgor/">https://sultan.bandungkab.go.id/nasgor/</a>
-<a href="https://my.ipm.or.id/nasgor/">https://my.ipm.or.id/nasgor/</a>
-<a href="https://apidatabsdk.kemenparekraf.go.id/storage/app/uploads/public/burungbet/index.html">https://apidatabsdk.kemenparekraf.go.id/storage/app/uploads/public/burungbet/index.html</a>
-<a href="https://pendidikan-fisika.uinsgd.ac.id/burungbet/">https://pendidikan-fisika.uinsgd.ac.id/burungbet/</a>
+<a href="https://transportth.com/point/">https://transportth.com/point/</a>
+<a href="https://wahanamedia.com/burungbet/">https://wahanamedia.com/burungbet/</a>
+<a href="https://graduatenstru.com/4388-2/">https://graduatenstru.com/4388-2/</a>
+<a href="https://gurumengajar.id/burung/">https://gurumengajar.id/burung/</a>
+<a href="https://inbis.unhi.ac.id/about/">https://inbis.unhi.ac.id/about/</a>
+<a href="https://proceeding.uingusdur.ac.id/burungbet/">https://proceeding.uingusdur.ac.id/burungbet/</a>
+<a href="https://logbookpps.umpar.ac.id/burungbet/">https://logbookpps.umpar.ac.id/burungbet/</a>
 </div>
