@@ -1,4 +1,6 @@
 <div style="display:none">
+<a href="https://teknik.unwim.ac.id/boots/index.html">https://teknik.unwim.ac.id/boots/index.html</a>
+<a href="https://elearning.ulm.ac.id/burungbet/">https://elearning.ulm.ac.id/burungbet/</a>
 <a href="https://transportth.com/point/">https://transportth.com/point/</a>
 <a href="https://wahanamedia.com/burungbet/">https://wahanamedia.com/burungbet/</a>
 <a href="https://graduatenstru.com/4388-2/">https://graduatenstru.com/4388-2/</a>
