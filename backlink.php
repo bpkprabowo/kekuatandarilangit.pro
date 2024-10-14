@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://wahanamedia.com/turbo/">https://wahanamedia.com/turbo/</a>
 <a href="https://sice.umsida.ac.id/boost/">https://sice.umsida.ac.id/boost/</a>
 <a href="https://jurnal.itpln.ac.id/boost/">https://jurnal.itpln.ac.id/boost/</a>
 <a href="https://ejurnal.bkkbn.go.id/boost/">https://ejurnal.bkkbn.go.id/boost/</a>
