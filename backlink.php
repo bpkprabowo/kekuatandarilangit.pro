@@ -1,7 +1,6 @@
 <div style="display:none">
 <a href="https://jtridharma.ub.ac.id/">https://jtridharma.ub.ac.id/</a>
 <a href="https://prosidingmami.ub.ac.id/">https://prosidingmami.ub.ac.id/</a>
-<a href="https://sisakti.konijateng.id/">https://sisakti.konijateng.id/</a>
 <a href="https://stikesyahoedsmg.ac.id/boost/">https://stikesyahoedsmg.ac.id/boost/</a>
 <a href="https://cosy.akademisi.co.id/boost/">https://cosy.akademisi.co.id/boost/</a>
 <a href="https://sisakti.konijateng.id/">https://sisakti.konijateng.id/</a>
