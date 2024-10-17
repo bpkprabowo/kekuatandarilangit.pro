@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://stikesyahoedsmg.ac.id/boost/">https://stikesyahoedsmg.ac.id/boost/</a>
 <a href="https://cosy.akademisi.co.id/boost/">https://cosy.akademisi.co.id/boost/</a>
 <a href="https://sisakti.konijateng.id/">https://sisakti.konijateng.id/</a>
 <a href="https://siap.hanura.or.id/">https://siap.hanura.or.id/</a>
