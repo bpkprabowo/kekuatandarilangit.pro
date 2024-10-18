@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://arsiv.omu.edu.tr/turbo/">https://arsiv.omu.edu.tr/turbo/</a>
 <a href="https://jtridharma.ub.ac.id/">https://jtridharma.ub.ac.id/</a>
 <a href="https://prosidingmami.ub.ac.id/">https://prosidingmami.ub.ac.id/</a>
 <a href="https://stikesyahoedsmg.ac.id/boost/">https://stikesyahoedsmg.ac.id/boost/</a>
