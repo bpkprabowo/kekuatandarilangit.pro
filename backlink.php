@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://journal.stisalmanar.ac.id/">https://journal.stisalmanar.ac.id/</a>
 <a href="https://ejournal.stikesjypr.ac.id/">https://ejournal.stikesjypr.ac.id/</a>
 <a href="https://arsiv.omu.edu.tr/turbo/">https://arsiv.omu.edu.tr/turbo/</a>
 <a href="https://jtridharma.ub.ac.id/">https://jtridharma.ub.ac.id/</a>
