@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://ejurnal.unim.ac.id/public/">https://ejurnal.unim.ac.id/public/</a>
 <a href="https://akuntansi.pnp.ac.id/turbo/">https://akuntansi.pnp.ac.id/turbo/</a>
 <a href="https://tbi.uinsgd.ac.id/boost/">https://tbi.uinsgd.ac.id/boost/</a>
 <a href="https://landing-alwise.bithouse.id/boost/">https://landing-alwise.bithouse.id/boost/</a>
