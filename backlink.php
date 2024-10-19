@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://ying-rodban.com/sateslot/">https://ying-rodban.com/sateslot/</a>
 <a href="https://jurnalfaktarbiyah.iainkediri.ac.id/locale/bimatoto/">https://jurnalfaktarbiyah.iainkediri.ac.id/locale/bimatoto/</a>
 <a href="https://jurnalfaktarbiyah.iainkediri.ac.id/locale/burungbet/">https://jurnalfaktarbiyah.iainkediri.ac.id/locale/burungbet/</a>
 <a href="https://elearning.ulm.ac.id/bi/">https://elearning.ulm.ac.id/bi/</a>
