@@ -1,4 +1,8 @@
 <div style="display:none">
+<a href="https://jurnal.ukdc.ac.id/bima/">https://jurnal.ukdc.ac.id/bima/</a>
+<a href="https://jurnal.ukdc.ac.id/n/">https://jurnal.ukdc.ac.id/n/</a>
+<a href="https://jurnal.ukdc.ac.id/s/">https://jurnal.ukdc.ac.id/s/</a>
+<a href="https://jurnal.ukdc.ac.id/b/">https://jurnal.ukdc.ac.id/b/</a>
 <a href="https://ying-rodban.com/sateslot/">https://ying-rodban.com/sateslot/</a>
 <a href="https://jurnalfaktarbiyah.iainkediri.ac.id/locale/bimatoto/">https://jurnalfaktarbiyah.iainkediri.ac.id/locale/bimatoto/</a>
 <a href="https://jurnalfaktarbiyah.iainkediri.ac.id/locale/burungbet/">https://jurnalfaktarbiyah.iainkediri.ac.id/locale/burungbet/</a>
