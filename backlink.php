@@ -1,4 +1,10 @@
 <div style="display:none">
+<a href="https://jurnalfaktarbiyah.iainkediri.ac.id/locale/bimatoto/">https://jurnalfaktarbiyah.iainkediri.ac.id/locale/bimatoto/</a>
+<a href="https://jurnalfaktarbiyah.iainkediri.ac.id/locale/burungbet/">https://jurnalfaktarbiyah.iainkediri.ac.id/locale/burungbet/</a>
+<a href="https://elearning.ulm.ac.id/bi/">https://elearning.ulm.ac.id/bi/</a>
+<a href="https://elearning.ulm.ac.id/n/">https://elearning.ulm.ac.id/n/</a>
+<a href="https://elearning.ulm.ac.id/b/">https://elearning.ulm.ac.id/b/</a>
+<a href="https://jurnal.biounwir.ac.id/">https://jurnal.biounwir.ac.id/</a>
 <a href="https://ejournal.unhi.ac.id/">https://ejournal.unhi.ac.id/</a>
 <a href="https://ejurnal.unim.ac.id/public/">https://ejurnal.unim.ac.id/public/</a>
 <a href="https://akuntansi.pnp.ac.id/turbo/">https://akuntansi.pnp.ac.id/turbo/</a>
