@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://akuntansi.pnp.ac.id/turbo/">https://akuntansi.pnp.ac.id/turbo/</a>
 <a href="https://tbi.uinsgd.ac.id/boost/">https://tbi.uinsgd.ac.id/boost/</a>
 <a href="https://landing-alwise.bithouse.id/boost/">https://landing-alwise.bithouse.id/boost/</a>
 <a href="https://e-arsip.appsakademi.id/boost/">https://e-arsip.appsakademi.id/boost/</a>
