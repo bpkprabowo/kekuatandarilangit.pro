@@ -1,4 +1,5 @@
 <div style="display:none">
+<a href="https://graduatenstru.com/4388-2/">https://graduatenstru.com/4388-2/</a>
 <a href="https://elearning.ulm.ac.id/s/">https://elearning.ulm.ac.id/s/</a>
 <a href="https://koperasi.maarif-sidoarjo.or.id/">https://koperasi.maarif-sidoarjo.or.id/</a>
 <a href="https://jurnal.ukdc.ac.id/bima/">https://jurnal.ukdc.ac.id/bima/</a>
