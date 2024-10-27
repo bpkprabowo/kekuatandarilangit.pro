@@ -2,7 +2,6 @@
 <a href="https://teknik.unwim.ac.id/boots/index.html">https://teknik.unwim.ac.id/boots/index.html</a>
 <a href="https://graduatenstru.com/4388-2/">https://graduatenstru.com/4388-2/</a>
 <a href="https://elearning.ulm.ac.id/s/">https://elearning.ulm.ac.id/s/</a>
-<a href="https://koperasi.maarif-sidoarjo.or.id/">https://koperasi.maarif-sidoarjo.or.id/</a>
 <a href="https://jurnal.ukdc.ac.id/bima/">https://jurnal.ukdc.ac.id/bima/</a>
 <a href="https://jurnal.ukdc.ac.id/n/">https://jurnal.ukdc.ac.id/n/</a>
 <a href="https://jurnal.ukdc.ac.id/s/">https://jurnal.ukdc.ac.id/s/</a>
@@ -13,11 +12,6 @@
 <a href="https://elearning.ulm.ac.id/bi/">https://elearning.ulm.ac.id/bi/</a>
 <a href="https://elearning.ulm.ac.id/n/">https://elearning.ulm.ac.id/n/</a>
 <a href="https://elearning.ulm.ac.id/b/">https://elearning.ulm.ac.id/b/</a>
-<a href="https://jurnal.biounwir.ac.id/">https://jurnal.biounwir.ac.id/</a>
-<a href="https://ejournal.unhi.ac.id/">https://ejournal.unhi.ac.id/</a>
-<a href="https://ejurnal.unim.ac.id/public/">https://ejurnal.unim.ac.id/public/</a>
-<a href="https://akuntansi.pnp.ac.id/turbo/">https://akuntansi.pnp.ac.id/turbo/</a>
-<a href="https://tbi.uinsgd.ac.id/boost/">https://tbi.uinsgd.ac.id/boost/</a>
 <a href="https://landing-alwise.bithouse.id/boost/">https://landing-alwise.bithouse.id/boost/</a>
 <a href="https://ejurnal.bkkbn.go.id/boost/">https://ejurnal.bkkbn.go.id/boost/</a>
 </div>
