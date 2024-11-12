@@ -1,20 +1,3 @@
 <div style="display:none">
-<a href="https://conference.univpancasila.ac.id/bimatoto/">https://conference.univpancasila.ac.id/bimatoto/</a>
-<a href="https://ejemplo.designingsolutions.com.co/boost/">https://ejemplo.designingsolutions.com.co/boost/</a>
-<a href="https://sungrakcolombia.org/dia">https://sungrakcolombia.org/dia</a>
-<a href="https://teknik.unwim.ac.id/boots/index.html">https://teknik.unwim.ac.id/boots/index.html</a>
-<a href="https://graduatenstru.com/4388-2/">https://graduatenstru.com/4388-2/</a>
-<a href="https://elearning.ulm.ac.id/s/">https://elearning.ulm.ac.id/s/</a>
-<a href="https://jurnal.ukdc.ac.id/bima/">https://jurnal.ukdc.ac.id/bima/</a>
-<a href="https://jurnal.ukdc.ac.id/n/">https://jurnal.ukdc.ac.id/n/</a>
-<a href="https://jurnal.ukdc.ac.id/s/">https://jurnal.ukdc.ac.id/s/</a>
-<a href="https://jurnal.ukdc.ac.id/b/">https://jurnal.ukdc.ac.id/b/</a>
-<a href="https://ying-rodban.com/sateslot/">https://ying-rodban.com/sateslot/</a>
-<a href="https://jurnalfaktarbiyah.iainkediri.ac.id/locale/bimatoto/">https://jurnalfaktarbiyah.iainkediri.ac.id/locale/bimatoto/</a>
-<a href="https://jurnalfaktarbiyah.iainkediri.ac.id/locale/burungbet/">https://jurnalfaktarbiyah.iainkediri.ac.id/locale/burungbet/</a>
-<a href="https://elearning.ulm.ac.id/bi/">https://elearning.ulm.ac.id/bi/</a>
-<a href="https://elearning.ulm.ac.id/n/">https://elearning.ulm.ac.id/n/</a>
-<a href="https://elearning.ulm.ac.id/b/">https://elearning.ulm.ac.id/b/</a>
-<a href="https://landing-alwise.bithouse.id/boost/">https://landing-alwise.bithouse.id/boost/</a>
-<a href="https://ejurnal.bkkbn.go.id/boost/">https://ejurnal.bkkbn.go.id/boost/</a>
+<a href="http://sriwijayapost.tesys.co.id/">http://sriwijayapost.tesys.co.id/</a>
 </div>
